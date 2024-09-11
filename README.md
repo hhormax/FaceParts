@@ -1,1 +1,2 @@
-![controlgame](https://github.com/user-attachments/assets/fcbccfb4-a7f3-4d7b-a4a2-9bbd4e2150b0)
+![image](https://github.com/user-attachments/assets/fb6b96b2-46dd-4b5d-8281-b969c42c9fd2)
+
